@@ -4,4 +4,3 @@ Garry slammed his brakes and his horn. Just like the driver ahead. Just like the
 “Stop fucking honking at me asswipe!” he screamed over his shoulder. He could see the driver behind him, screaming himself red. Look at this guy! What an idiot.
 Somewhere a light turned green. All the cars lurched forward a metre and then slammed their brakes again. “Move! Move! MOVE!”
 Therapy was off to a rocky start.
-***
